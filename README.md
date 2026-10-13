@@ -29,7 +29,7 @@
   <h2>Consciência • Transformação • Possibilidades</h2>
   <p>Experiências de conexão, presença e autoconhecimento.</p>
   <p>Barras de Access • Vivências • Energia da Criação</p>
-  <a href="https://wa.me/5561SEUNUMERO">
+  <a href="https://wa.me/5561981560786">
     Entre em contato
   </a>
 </body>
